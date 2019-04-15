@@ -1,0 +1,1 @@
+# Punching_capacity_of_sloped_footing
